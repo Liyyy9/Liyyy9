@@ -11,7 +11,7 @@
 
 - 📫 How to reach me: **liyanaafiqah.j@gmail.com**
 
-- ⚡ Fun fact: **I have a scuba diving license**
+- ⚡ Fun fact: **I want to visit all the places in Vietnam**
 <br>
 <h3 align="left">Connect with me:</h3>
 <p align="left">
